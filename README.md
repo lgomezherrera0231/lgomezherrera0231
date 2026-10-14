@@ -8,7 +8,7 @@ Specialized, general, literary and audiovisual translation.
 
 ## About me
 
-I have experience in subtitling and translating technical, literary, administrative, and marketing texts. I've been a volunteer translator for over 2 years, including work for [TED Translators](https://www.ted.com/profiles/46825449/translator) and Amara.
+I have experience in transcribing and subtitling social media content, as well as translating technical, literary, administrative, and marketing texts. I've been a volunteer translator for over 2 years, including work for [TED Translators](https://www.ted.com/profiles/46825449/translator) and Amara.
 
 ## Services
 
